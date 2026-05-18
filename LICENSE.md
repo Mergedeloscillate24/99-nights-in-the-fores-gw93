@@ -1,4 +1,4 @@
-#  
+#  Exclusive brainrot evolution script is the best brainrot evolution script with unlimited stamina and no cooldown. Safe, reliable, and optimized for maximum performance.
 
 
 
